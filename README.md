@@ -1,2 +1,2 @@
-![logo](https://github.com/ShudhanshuShekhar123/resume/assets/115460439/b0444924-0209-4783-a4bc-2476f3fda5be)
-# resume 
+# resume  
+[shudhanshu shekhar.pdf](https://github.com/ShudhanshuShekhar123/resume/files/12049755/shudhanshu.shekhar.pdf)
