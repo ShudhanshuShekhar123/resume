@@ -1,1 +1,1 @@
-[my resume (1).pdf](https://github.com/ShudhanshuShekhar123/resume/files/12159927/my.resume.1.pdf)
+[my resume (1).pdf](https://drive.google.com/file/d/1_op5tJlJ6zA1Xnn4AZJOaOktUhI0mdhF/view)
